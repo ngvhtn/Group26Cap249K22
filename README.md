@@ -1,2 +1,2 @@
 # Group26Cap249K22
-Dự án nhóm
+# Thành viên: Hoài Tiên, Kim Hân, Quỳnh Nhi
